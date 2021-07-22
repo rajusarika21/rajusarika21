@@ -1,2 +1,7 @@
-rajusarika21@gmail.com
-Tarak$070147
+Hi.....hello
+
+
+created git hub for sample purpose
+
+
+Thanks and regards
